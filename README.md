@@ -3,7 +3,6 @@
 - 👷‍♀️ Formada no curso de Engenharia Civil;
 - 👩‍💻 Curiosa por tecnologias;
 - ✈️  Amo Viajar;
-- 📫 Contate-me: c.marquezini15@gmail.com
 - 😄 Pronomes: ela/dela
 
 <div align="center">
