@@ -1,6 +1,6 @@
 ### Olááá, eu sou a Carol Marquezini!!! 😊
 
-- 👷‍♀️ Formada no curso de Engenharia Civil;
+- 👷‍♀️ Bacharel em Engenharia Civil;
 - 👩‍💻 Curiosa por tecnologias;
 - ✈️  Amo Viajar;
 - 😄 Pronomes: ela/dela
