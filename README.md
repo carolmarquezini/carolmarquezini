@@ -1,7 +1,7 @@
 ### Olááá, eu sou a Carol Marquezini!!! 😊
 
+- 👩‍💻 Estudante de Engenharia de Software;
 - 👷‍♀️ Bacharel em Engenharia Civil;
-- 👩‍💻 Entusiasta da tecnologia;
 - ✈️  Amo Viajar;
 - 😄 Pronomes: ela/dela
 
